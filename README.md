@@ -65,4 +65,4 @@ B.E. – Information Science and Engineering
 
 GitHub: "Aptha903" (https://github.com/Aptha903)
 
-LinkedIn: "Aptha H P" (https://www.linkedin.com/in/aptha-hp-9951242a6/)
+LinkedIn: "Aptha H P" (https://www.linkedin.com/in/aptha-hp)
